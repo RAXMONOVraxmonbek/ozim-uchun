@@ -1,0 +1,2 @@
+# ozim-uchun
+kunlik rejam
